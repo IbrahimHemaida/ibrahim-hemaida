@@ -34,8 +34,8 @@ With over **13 years of experience** in the mobile industry, I specialize in bui
 
 ## 📬 Connect with me
 
-* **LinkedIn:** [ضع رابط حسابك هنا]
-* **GitHub Showcase:** [عندما تنهي مشروع الـ Boilerplate سنضع رابطه هنا]
+* **LinkedIn:** [linkedin.com/in/ibrahimhemaida]
+* **GitHub Showcase:** [drive.google.com/drive/folders/0B6Hz2lQGeFQANE94TV9WUGRnZ2M]
 
 ---
 
